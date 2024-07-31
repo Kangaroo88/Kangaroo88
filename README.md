@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kangaroo88
-- 👀 I’m interested in Coding, (obviously) design, learning languages, biology, hematology, law, history, philosophy, digital and tradtional art and more.
+- 👀 I’m interested in Coding, (obviously) UX/UI and general design, robotics, learning languages, biology, hematology, law and legal studies, history, philosophy, digital and tradtional art and more.
 - 🌱 I’m currently learning languages such as Arabic, Japanese and French, and am fluent in Urdu, Hindi, and English. (Also done Greek and Chinese on Duolingo, but that's on a smaller scale.)
 - 💞️ I’m looking to collaborate on anything that is a learning experience; I'm always looking to learn more! :)
 - 📫 How to reach me: Use my email if you have it ;)
